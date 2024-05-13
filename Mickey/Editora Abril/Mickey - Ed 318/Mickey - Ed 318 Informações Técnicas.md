@@ -1,6 +1,6 @@
 MICKEY Nº 318
 
-Publicado em: abril de 1979
+Publicado em: abril de 1979\
 Editora: Abril
 Licenciador: Walt Disney
 Categoria: Revista Periódica
